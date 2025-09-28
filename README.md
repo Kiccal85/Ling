@@ -1,2 +1,2 @@
-# Ling
-My Boo
+# Photos
+
